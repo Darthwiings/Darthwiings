@@ -4,3 +4,7 @@ Fun facts are not fun.
 😒🐑🐏
 
 Mango juice yum yum
+Favorite color - orange 🧡
+Favorite video game - Valorant 🎮
+Favorite number - 2
+Favorite ice cream flavor -  none.
