@@ -9,3 +9,4 @@ Favorite color - orange 🧡
 Favorite video game - Valorant 🎮
 Favorite number - 2
 Favorite ice cream flavor -  none.
+Favorite book - Angels and Demons
